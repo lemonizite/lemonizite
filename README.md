@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lemonizite
 - 👀 I’m interested in getting rich
 - 🌱 I’m currently learning comp sci
-- 📫 How to reach me: @lemonizite on insta
+- 📫 How to reach me: @lemonizite on instagram @lemonizite111 on snapchat
 - 😄 Pronouns: he/they
 - ⚡ Fun fact: i like midwest emo
 
